@@ -1,5 +1,10 @@
-## Hi there 👋
+# Kutsinteam 🔥
 
+jack
+santino
+francis
+sean
+joven
 <!--
 
 **Here are some ideas to get you started:**
